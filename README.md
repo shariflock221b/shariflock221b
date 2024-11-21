@@ -1,5 +1,5 @@
 
-![Web Designer & Developer](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
+![Web Designer & Developer](https://pbs.twimg.com/profile_banners/789356726067695616/1663523717/600x200)
 
 ### Hi there 👋, I'm Shariful Islam
 #### Web Designer & Developer
